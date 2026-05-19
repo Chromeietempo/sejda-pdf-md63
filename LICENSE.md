@@ -1,4 +1,4 @@
-# 
+# secure Wave para PC addons é o melhor Wave para PC addons com permissoes de usuario e gerenciamento de estoque. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
